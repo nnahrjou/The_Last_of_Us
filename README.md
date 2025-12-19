@@ -1,3 +1,3 @@
 # The_Last_of_Us
 Zombiology
-![Thelastofus](https://github.com/user-attachments/assets/0f378415-9cc1-4312-b35a-3285bdf7fa20)
+![Thelastofus](https://github.com/user-attachments/assets/fd94a577-a28f-4bc9-a361-57856a5df53d)
